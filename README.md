@@ -75,7 +75,7 @@ I am a passionate engineering student who enjoys building
 ## 🌐 Connect With Me
 
 - 🧑‍💻 GitHub: https://github.com/padaliyaabhay27  
-- 💼 LinkedIn: https://www.linkedin.com/in/abhay-padaliya/
+- 💼 LinkedIn: https://www.linkedin.com/in/gp-raj-ict-abhay-padaliya-ict236200332045?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 ---
 
